@@ -1,9 +1,9 @@
-![Foto_codigoGitHub](https://github.com/mcds04/mcds04/assets/100251166/71fbf6f4-9623-448d-989c-ec627c3a4ff4)
+![image](https://github.com/mcds04/mcds04/assets/100251166/f9039841-6bf8-4270-9a0b-ad24de03e6b8)
 
 
 
 
- 
+
 ✨Olá, sou Cris Sousa✨! :trophy:
 
 
