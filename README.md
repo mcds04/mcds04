@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
-#  Olá, sou Cris Sousa!
+#  ✨Olá, sou Cris Sousa✨! :trophy:
+
 
 Desenvolvedora apaixonada por :heart: criar soluções inovadoras :rocket: e colaborar com a comunidade :people_holding_hands:.
 
@@ -28,8 +29,8 @@ Desenvolvedora apaixonada por :heart: criar soluções inovadoras :rocket: e col
 
 ## :email: Como entrar em contato comigo
 
-* E-mail: cris.sousa@email.com
-* LinkedIn: (https://www.linkedin.com/in/cristina-sousa-359a9777)
+* E-mail: cristina.wep2013@gmail.com :heart:
+* LinkedIn: (https://www.linkedin.com/in/cristina-sousa-359a9777) :heart:
 
 ## :bar_chart: Estatísticas
 
@@ -52,11 +53,7 @@ Curriculo Lattes: http://lattes.cnpq.br/9192160875304405
 
 ## :bird: Twitter
 
-
-
-
-
 **✨ Personalização:**
-
+:trophy: :trophy: :trophy: :trophy: :trophy:
 
 
