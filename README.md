@@ -1,10 +1,9 @@
-- 👋 Hi, I’m @mcds04
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
 
-#  ✨Olá, sou Cris Sousa✨! :trophy:
+![ec4469ad42a136f29c7dafa5821416bc](https://github.com/mcds04/mcds04/assets/100251166/658652b5-f5cd-445d-9510-0e32d0688fed)
+
+
+ 
+✨Olá, sou Cris Sousa✨! :trophy:
 
 
 Desenvolvedora apaixonada por :heart: criar soluções inovadoras :rocket: e colaborar com a comunidade :people_holding_hands:.
@@ -54,6 +53,6 @@ Curriculo Lattes: http://lattes.cnpq.br/9192160875304405
 ## :bird: Twitter
 
 **✨ Personalização:**
-:trophy: :trophy: :trophy: :trophy: :trophy:
+:trophy:    :trophy:    :trophy:    :trophy:    :trophy:
 
 
