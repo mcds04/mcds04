@@ -1,4 +1,5 @@
-![image](https://github.com/mcds04/mcds04/assets/100251166/f9039841-6bf8-4270-9a0b-ad24de03e6b8)
+![image](https://github.com/user-attachments/assets/bee8efc0-5aef-43c8-a7d7-8de3f881e0dd)
+
 
 
 
@@ -7,7 +8,7 @@
 ✨Olá, sou Cris Sousa✨! :trophy:
 
 
-Desenvolvedora apaixonada por :heart: criar soluções inovadoras :rocket: e colaborar com a comunidade :people_holding_hands:.
+Developer Back-End   :heart: criar soluções inovadoras :rocket: e colaborar com a comunidade :people_holding_hands:.
 
 ## :sparkling_heart: Interesses
 
